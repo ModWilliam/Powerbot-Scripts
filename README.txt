@@ -4,6 +4,10 @@ wjcCitadel: 454 replies
 
 http://www.powerbot.org/community/topic/677412-wjccitadel-citadel-script-for-crafting-mining-and-woodcutting/page-1
 
+Picture of first post: http://i.imgur.com/88wU6gZ.png
+
 wjcPenguinAid: 75 replies
 
 http://www.powerbot.org/community/topic/705742-wjcpenguinaid-helps-you-get-your-penguin-points/
+
+Picture of first post: http://i.imgur.com/mOCBg37.png
